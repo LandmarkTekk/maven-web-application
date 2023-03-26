@@ -18,7 +18,7 @@
 	We offer interview preparations and job assitance.
 	The King is in our midst. His name is JESUS. What a wonderful it is. HE IS OUR SUCCESS ACCESS KEY.
 	Thanks for being an ambassador of Landmark Technology. President
-	To God be the Glory, Hallelujah</h1>
+	To God be the Glory, Hallelujah Amen</h1>
 <hr>
 <div style="text-align: center;">
 	<span>
